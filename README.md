@@ -1,16 +1,13 @@
-## Hi there 👋
+ <div align=center
 
-<!--
-**mrgatoou/mrgatoou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  ![Image Alt](https://64.media.tumblr.com/754b600c1ecf027f57f5e977e4c4b6ca/6f96198897282379-a6/s1280x1920/159ec3d512597e96317821db873332ed19ed8157.gifv)
 
-Here are some ideas to get you started:
+  ![](https://komarev.com/ghpvc/?username=mad-h4ter&style=flat&color=aceb41&label=Losers) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  [atabook](https://discomrgato.atabook.org) [strawpage(wip)](.)  [2nd Acc](https://github.com/no-b1ggie)
+  
+ <div align=right
+
+  ![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/16%20sin%20t%C3%ADtulo_20260701123531.png?raw=true)
+
+
