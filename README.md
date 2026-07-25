@@ -4,7 +4,7 @@
 
   ![](https://komarev.com/ghpvc/?username=mad-h4ter&style=flat&color=aceb41&label=Losers) 
 
-  [atabook](https://discomrgato.atabook.org) [strawpage(wip)](.)  [2nd Acc](https://github.com/no-b1ggie)
+  [atabook](https://discomrgato.atabook.org) [strawpage(wip)](.)  [2nd Acc](https://github.com/no-b1ggie) [patreon](https://www.patreon.com/cw/Mr_Gatoou)
   
  <div align=right
 
