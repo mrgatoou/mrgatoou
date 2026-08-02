@@ -10,6 +10,6 @@
  
  ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/Disco__3_-removebg-preview.png?raw=true)
 
-[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@Mr.Gato) [𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://discomrgato.atabook.org)
+[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚌𝚌](https://en.pronouns.page/@Mr.Gato) [𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://discomrgato.atabook.org) [𝗉𝖺𝗍𝗋𝖾𝗈𝗇](patreon.com/cw/Mr_Gatoou)
 
  
