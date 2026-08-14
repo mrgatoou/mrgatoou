@@ -1,6 +1,6 @@
  <div align=center
 
-i'll remake my strawoage soon i promise..
+i'll remake my strawpage soon i promise..
 
 2𝗇𝖽 𝖺𝖼𝖼 [𝙘𝙖𝙥𝙩𝙧𝙚𝙙𝙭](https://github.com/captredx)
 
