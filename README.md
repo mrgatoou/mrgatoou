@@ -17,4 +17,6 @@ i'll remake my strawpage soon i promise..
 
  ![Image Alt](https://64.media.tumblr.com/94d9f04914b19e500b4629829ad7a480/d231577f55845610-3f/s400x600/30f70091d7161d97a0ac55417ec3449bb2f1e764.pnj)
  
+
+  𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻'𝘀 𝙂𝙪𝙢𝙗𝙖𝙡𝙡! 
   
