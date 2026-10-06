@@ -1,21 +1,4 @@
- <div align=center
-
-i'll remake my strawpage soon i promise..
-
-2𝗇𝖽 𝖺𝖼𝖼 [𝙘𝙖𝙥𝙩𝙧𝙚𝙙𝙭](https://github.com/captredx)
-
-  ![Image Alt](https://64.media.tumblr.com/d1351ef400bfce91a5ba278e4bdb8a0f/8879a33f8d2a206c-74/s400x600/27b7d1fff1c9ddb913583e783bdfff011a032ed5.gifv)
-  
-  
-  ![](https://komarev.com/ghpvc/?username=mad-h4ter&style=flat&color=a15d82&label=Anomalies) 
-
-
- 
- ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/Disco__3_-removebg-preview.png?raw=true)
-
-[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊g𝖾](https://en.pronouns.page/@Mr.Gato) [𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://discomrgato.atabook.org) [𝗉𝖺𝗍𝗋𝖾𝗈𝗇](patreon.com/cw/Mr_Gatoou)
-
- ![Image Alt](https://64.media.tumblr.com/94d9f04914b19e500b4629829ad7a480/d231577f55845610-3f/s400x600/30f70091d7161d97a0ac55417ec3449bb2f1e764.pnj)
+wip !!! 
  
 
   𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻'𝘀 𝙂𝙪𝙢𝙗𝙖𝙡𝙡! 
