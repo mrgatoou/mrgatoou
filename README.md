@@ -1,4 +1,4 @@
- [strawpage](https://goobtheflufflycrafttt.straw.page)⠀[ata](https://discomrgato.atabook.org)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ [straw](https://goobtheflufflycrafttt.straw.page)⠀[ata](https://discomrgato.atabook.org)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 
