@@ -1,4 +1,4 @@
-read [strawpage](https://goobtheflufflycrafttt.straw.page)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ [strawpage](https://goobtheflufflycrafttt.straw.page)⠀[ata](https://discomrgato.atabook.org)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 
