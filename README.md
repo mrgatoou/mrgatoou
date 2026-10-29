@@ -6,7 +6,7 @@
 
  <div align=center
 
-  # <img src="https://github.com/mrgatoou/mrgatoou/blob/main/tumblr_1891be3d62fb40f0357a7c6e57eba8b4_ff19531b_250.png?raw=true" width="140">  <img src="https://github.com/mrgatoou/mrgatoou/blob/main/qwygeafs.png?raw=true" width="350"> 
+  #  <img src="https://github.com/mrgatoou/mrgatoou/blob/main/qwygeafs.png?raw=true" width="350"> 
 
 
 <img src="https://github.com/mrgatoou/mrgatoou/blob/main/goob%20repo.png?raw=true" width="250">
