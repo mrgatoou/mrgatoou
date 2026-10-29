@@ -1,6 +1,8 @@
  <div align=center
 
- ![](https://komarev.com/ghpvc/?username=mrgatoour&style=flat&color=aceb41&label=Hugs_Given!) 
+ ![](https://komarev.com/ghpvc/?username=mrgatoour&style=flat-square&color=0ba3e8&label=Hugs_Given!) 
+
+・・・・・
 
  <img src="https://github.com/mrgatoou/mrgatoou/blob/main/tumblr_7cd2b6b319ac0bddf3e07c8ef053c741_1410a60d_250.png?raw=true" width="400">
 
@@ -18,9 +20,8 @@
 
 ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/35.webp?raw=true)
 
-what a mess ghhfgghghgh
- 
+・・・・・
 
-  𝗽𝗼𝗻𝘆 𝘁𝗼𝘄𝗻'𝘀 𝙂𝙪𝙢𝙗𝙖𝙡𝙡!    𓂃                        ⸝⸝⟢ ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/tumblr_311dd5abca340808c0074c14df005a80_3246d9dd_250.webp?raw=true)
+![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/tumblr_311dd5abca340808c0074c14df005a80_3246d9dd_250.webp?raw=true)
 
   
