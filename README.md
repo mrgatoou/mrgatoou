@@ -16,7 +16,7 @@
 
 
 
- [straw](https://goobtheflufflycrafttt.straw.page) ╰   ⸝⸝⸝ ‿‿‿  [ata](https://discomrgato.atabook.org) 𓄧  𓏵𓏵 ‿  [prns](https://en.pronouns.page/@Mr.Gato)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+### [straw](https://goobtheflufflycrafttt.straw.page) ╰   ⸝⸝⸝ ‿‿‿  [ata](https://discomrgato.atabook.org) 𓄧  𓏵𓏵 ‿  [prns](https://en.pronouns.page/@Mr.Gato)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/35.webp?raw=true)
 
