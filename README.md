@@ -20,8 +20,8 @@
 
 ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/35.webp?raw=true)
 
-・・・・・
+◟ ``  ⸝⸝⠀˒   iwcare ! ◞ ☆
 
-![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/tumblr_311dd5abca340808c0074c14df005a80_3246d9dd_250.webp?raw=true)
+
 
   
