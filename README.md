@@ -16,7 +16,9 @@
 
   ![Image Alt](https://64.media.tumblr.com/29ad5f1feffb22cd35de37d576fffcbe/7965f603c68fe382-48/s1280x1920/e7c53041363c132f8a918512f790507a93e27f68.pnj)
 
-![Image Alt](https://64.media.tumblr.com/7ded1c0fe1ae2855d99124f2cd3c8fba/a36ad49322e4f3ba-43/s100x200/5bcba3b2f229c3ae88c675edcead6dcdd72d10a4.gifv)  ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/imagen_2026-10-24_164008446.png?raw=true)
+
+  
+ <img src="https://i.pinimg.com/736x/4f/38/d3/4f38d35519bc2e9b161898dcfd696758.jpg" width="60">  ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/imagen_2026-10-24_164008446.png?raw=true)
 
  
 
