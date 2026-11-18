@@ -1,27 +1,19 @@
  <div align=center
 
- ![](https://komarev.com/ghpvc/?username=mrgatoour&style=flat-square&color=0ba3e8&label=Hugs_Given!) 
 
-・・・・・
+ 
+ ![](https://komarev.com/ghpvc/?username=mrgatoour&style=flat-square&color=0ba3e8&label=◞_🐾ྀི!) 
 
- <img src="https://github.com/mrgatoou/mrgatoou/blob/main/tumblr_7cd2b6b319ac0bddf3e07c8ef053c741_1410a60d_250.png?raw=true" width="400">
+૮꒰ ˶• ༝ •˶꒱ა ♡
 
- <div align=center
+  <img src="https://media.discordapp.net/attachments/1449490278921801979/1572648932679360643/Untitled26_20261118121855.png?ex=6aff22f3&is=6afdd173&hm=64c2e754fcdb6951450dd3625c2ccbdc90a979e8d9f9449f478784ab55b58f68&format=webp&quality=lossless&width=655&height=768" width="400"> ྀི ₊ 
+ 
+  ⊹ ೀ [新book](https://discomrgato.atabook.org)
+  𓏴𓏴 𓊆ྀི♥︎𓊇ྀི 𓏴𓏴 [straw](https://goobtheflufflycrafttt.straw.page) 𓏵 ⸝⸝ [prns](https://en.pronouns.page/@Mr.Gato)
 
-  #  <img src="https://github.com/mrgatoou/mrgatoou/blob/main/qwygeafs.png?raw=true" width="350"> 
-
-
-<img src="https://github.com/mrgatoou/mrgatoou/blob/main/goob%20repo.png?raw=true" width="250">
-
-
+ 
 
 
-### [straw](https://goobtheflufflycrafttt.straw.page) ╰   ⸝⸝⸝ ‿‿‿  [ata](https://discomrgato.atabook.org) 𓄧  𓏵𓏵 ‿  [prns](https://en.pronouns.page/@Mr.Gato)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/35.webp?raw=true)
-
-
-◟ ``  ⸝⸝⠀˒   iwcare ! ◞ ☆
 
 
 
