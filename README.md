@@ -2,7 +2,7 @@
 
 
  
- ![](https://komarev.com/ghpvc/?username=mrgatoour&style=flat-square&color=0ba3e8&label=◞_🐾ྀི!) 
+ ![](https://komarev.com/ghpvc/?username=mrgatoour&style=flat-square&color=5e75b9&label=◞_🐾ྀི!) 
 
 ૮꒰ ˶• ༝ •˶꒱ა ♡
 
