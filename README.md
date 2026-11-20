@@ -14,11 +14,15 @@
   ⊹ ೀ [新book](https://discomrgato.atabook.org)
   𓏴𓏴 𓊆ྀི♥︎𓊇ྀི 𓏴𓏴 [straw](https://goobtheflufflycrafttt.straw.page) 𓏵 ⸝⸝ [prns](https://en.pronouns.page/@Mr.Gato) ![Image Alt](https://64.media.tumblr.com/6706a91a9840f5fb505a08fdc26f73fb/13a3d110b72134b9-ab/s75x75_c1/53179a3a199808acf747a9ff99816aca0f8b8cd8.gifv)
 
-  ![Image Alt](https://64.media.tumblr.com/29ad5f1feffb22cd35de37d576fffcbe/7965f603c68fe382-48/s1280x1920/e7c53041363c132f8a918512f790507a93e27f68.pnj)
+ ♡ enfp 
+
+ ![Image Alt](https://64.media.tumblr.com/29ad5f1feffb22cd35de37d576fffcbe/7965f603c68fe382-48/s1280x1920/e7c53041363c132f8a918512f790507a93e27f68.pnj)
 
 
   
  <img src="https://i.pinimg.com/736x/4f/38/d3/4f38d35519bc2e9b161898dcfd696758.jpg" width="60">  ![Image Alt](https://github.com/mrgatoou/mrgatoou/blob/main/imagen_2026-10-24_164008446.png?raw=true)
+
+
 
  
 
