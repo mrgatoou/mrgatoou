@@ -6,7 +6,6 @@
  
 ![Image Alt](https://64.media.tumblr.com/31329862bf07ae39a13557f6c354dad5/a36ad49322e4f3ba-80/s75x75_c1/a57a49d70714ca10bb9d51934729832fbe788597.gifv) ![](https://komarev.com/ghpvc/?username=mrgatoour&style=flat-square&color=5e75b9&label=◞_🐾ྀི!) 
 
-![Image Alt](https://64.media.tumblr.com/7cd330c59038c8d21ad1c194f59823ab/f0131004a4f9c697-80/s250x400/2258dca90dc3f026ecc01fe2c7103868b26904ba.gifv)
 
 ૮꒰ ˶• ༝ •˶꒱ა ♡
 
